@@ -1,1 +1,1 @@
-Check out my portfolio at https://sylviahangnguyen.github.io/portfolio
+Check out my portfolio at https://sylviahangnguyen.github.io
